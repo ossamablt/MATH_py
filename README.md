@@ -5,7 +5,4 @@
 # last python basics i thik
 
 # MATH_py
-
-#lkjihojnsdbfouigjlnbsgrwbdknljfgbmlndksgrjbmnlgralmnfbdgramjbdnsgarmkdfmgarln mdkfsgarln #mdkfsgamblndf
 # MATH_py
-sadkjfñadslkjasñlkdfjlaksdjf# MATH_py
